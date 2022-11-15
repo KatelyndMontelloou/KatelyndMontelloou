@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @KatelyndMontelloou
+- 👀 I’m interested in Computers
+- 🌱 I’m currently learning for a programmer
